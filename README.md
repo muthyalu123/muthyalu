@@ -1,2 +1,0 @@
-# muthyalu
-madhavarayaswamy temy
